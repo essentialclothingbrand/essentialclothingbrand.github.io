@@ -1,2 +1,0 @@
-# essentialclothingbrand.github.io
-website
